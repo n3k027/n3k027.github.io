@@ -48,4 +48,4 @@ Connect with me on [LinkedIn](https://linkedin.com/in/richardarthurmartinez) for
 This portfolio is for personal and professional use. All content and design are proprietary.
 
 ---
-*Last updated: July 2025*
+*Last updated: July 2025
